@@ -1,1 +1,1 @@
-# Nazar & Waga's Projet.
+# Nazar & Waga's Project.
